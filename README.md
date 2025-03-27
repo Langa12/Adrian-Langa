@@ -1,6 +1,6 @@
 # Hola, soy Adrián Langa 👋
 
-![Mi foto](https://preview.redd.it/cuakrfkwkfz61.jpg?auto=webp&s=b2627e3406ae4b68c2b9e3dee91fd58eeb38281a) 
+![Mi foto](https://i.pinimg.com/originals/69/a2/30/69a230cb72769cced059729f24c32e54.gif) 
 
 Soy un estudiante de animacion al que le obligan a hacer estas cosas... RUI VAMOS A POR NOODLES
 ## 📚 Sobre mí
