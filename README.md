@@ -2,7 +2,7 @@
 
 ![Mi foto](https://preview.redd.it/cuakrfkwkfz61.jpg?auto=webp&s=b2627e3406ae4b68c2b9e3dee91fd58eeb38281a) 
 
-Soy un estudiante de animacion al que le obligan a hacer estas cosas... SOCORRO TENGO PESALLIDAS CON EL BOTTON PLUGIN :
+Soy un estudiante de animacion al que le obligan a hacer estas cosas... RUI VAMOS A POR NOODLES
 ## 📚 Sobre mí
 - 🌱 Actualmente aprendiendo **animacion y modelado**.
 - 💻 Me gusta trabajar con **JavaScript**, **Python** y **React**.
